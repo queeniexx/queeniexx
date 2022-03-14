@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @queeniexx
-- 👀 I’m interested in writing a poetry, book reading and reviews and editing videos.
-- 🌱 I’m currently learning on editing videos using variety of editing apps that is applicable for phones.
-- 💞️ I’m looking to collaborate on nothing specifc naman, just ellaborate it to me so I can decide if I'm g or nah.
+- 👀 I’m interested in 01010100 01100101 01100011 01101000 01101110 01101111 01101100 01101111 01100111 01111001 
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate 
 - 📫 How to reach me :
 Gmail: Esthercbarrios@gmail.com
 Facebook: Esther Barrios
